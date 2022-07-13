@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pirho2
 - 👀 I’m interested in codding and LITERALY every dysciplines in sport
-- 🌱 I’m currently learning Python(I don't know how many times I tries to learn this language xD) 
+- 🌱 I’m currently learning Python(I don't know how many times I tried to learn this language xD) 
 - 📫 How to reach me discord: Pirho#6571 and mail: oliwierkowalski33122@gmail.com (If you want to message me pls use discord cause I don't look at this email often)
 -  I've learned bases of HTML
 
